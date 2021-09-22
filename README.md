@@ -1,4 +1,4 @@
-out looking for bitches idk
+death was my errand and the fate you (personal) had earned
 
 <!---
 stygianfells/stygianfells is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
